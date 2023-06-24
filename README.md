@@ -1,5 +1,8 @@
-Nelson Arnoldo Torres Ramirez
+🔥🔥💻🔥🔥
+💻Nelson Arnoldo Torres Ramirez💻
+
 Estudiante de Ing. En Sistemas y Computacion
+
 Correo: torresnelson094@gmail.com
 
 Tell: 7828-7779
@@ -16,11 +19,11 @@ Direccion: Canton Comalapa Montecristo #1
 DUI: 05737733-5
 
 Estudions Realizados
--Bachillerato general (Instituto Nacional de San Luis Talpa)
+-Bachillerato general (Instituto Nacional de San Luis Talpa)   ✔️
 
-Técnico en diseño de sistemas (INFOTEC) Zacatecoluca
+Técnico en diseño de sistemas (INFOTEC) Zacatecoluca          ✔️
 
-Mantenimiento de computadoras (INFOTEC) Zacatecoluca
+Mantenimiento de computadoras (INFOTEC) Zacatecoluca          ✔️
 
-Mis Hobbies
+Mis Hobbies🔥
 Me gusta la programacion, trato de aprendes distintos lenguajes de programcion, tambien me gusta crea bases de datos
